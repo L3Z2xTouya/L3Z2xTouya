@@ -1,4 +1,4 @@
-### Hi Tegar Dwi Arbiantoro there 👋
+### Hi i'm TouyaDev there 👋
 
 <!--
 **L3Z2xTouya/L3Z2xTouya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
